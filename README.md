@@ -7,3 +7,6 @@ I really like gaming tho so im no less of a slave of tech either.
 oh well..
 
 well gonna add a lot of stuff to the files soon
+
+
+wtfffffffffffffff
